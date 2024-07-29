@@ -18,7 +18,7 @@ Today was our first day at college, and we needed to arrive at the gurdwara sahi
 
 **Second Day (11 July 2024)**
 
-The second day began with the chanting of the Mul Mantra and Gayatri Mantra. Following that, our speaker, Mr. Arvind Dhingra, Chairman of the Technical Activities Committee, arrived. He introduced us to various committees within the college, including SCIE (Student Chapter of the Institution of Engineering), ISTE (Indian Society for Technical Education), E2S2 (Electrical Engineering Staff and Students), SAE India, and BAJA. Mr. Dhingra also shared insights on the three P’s of success: _Passion, Persistence, and Patience_. Additionally, he organized games to engage both the girls and boys. 
+The second day began with the chanting of the Mul Mantra and Gayatri Mantra. Following that our speaker, Mr. Arvind Dhingra "Chairman of the Technical Activities Committee" arrived. He introduced us to various committees within the college, including SCIE (Student Chapter of the Institution of Engineering), ISTE (Indian Society for Technical Education), E2S2 (Electrical Engineering Staff and Students), SAE India, and BAJA. Mr. Dhingra also shared insights on the three P’s of success: _Passion, Persistence, and Patience_. Additionally, he organized games to engage both the girls and boys. 
 
 **Third Day (12 July 2024)**
 
@@ -40,6 +40,12 @@ The lecture was memorable and left a strong impression on me and I found him to 
 In the last lecture by our senior Panchan Jai Singh Gill Sir, he began by walking in from the back of the auditorium. He provided us with valuable insights on how to read a person's body language, including how to distinguish between a genuine smile and a fake one.
 
 **Fifth Day (16 July 2024)**
+
+
+
+**Sixth Day (17 July 2024)**
+
+
 
 
 
