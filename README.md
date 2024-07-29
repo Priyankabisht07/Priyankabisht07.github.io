@@ -27,7 +27,17 @@ The third day was expected to be interesting as it involved interacting with our
 **Forth Day (15 July 2024)**
 
 Today was auditorium day starting with the chanting of the Mul Mantra. Randhir Sir then guided us on creating and using a GitHub profile. Mr. Pyare Lal Garg was the main speaker. His confidence and storytelling were impressive. He shared his life stories, experiences, and remarkable poetry, which everyone enjoyed. The lecture was very inspiring.
-Next 
+
+The next lecture was given by the youthful speaker Mr. Sony Garg. He began with a story about a character named Shubhi who wanted a balloon emphasizing that we shouldn't judge others by their caste, color, or creed. His slogan "One Two Ka Four" involved everyone participating with hand gestures. He outlined key points for the four years of a BTech program:
+
+1. Learn
+2. Enquire
+3. Future
+4. Explore
+
+The lecture was memorable and left a strong impression on me and I found him to be a great personality.
+
+
 
 
 
