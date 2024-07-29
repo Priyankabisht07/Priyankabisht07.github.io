@@ -47,6 +47,51 @@ In the last lecture by our senior Panchan Jai Singh Gill Sir, he began by walkin
 
 
 
+**Seventh Day (18 July 2024)**
+
+
+
+**Eighth Day (19 July 2024)**
+
+
+
+**Ninth Day (22 July 2024)**
+
+The first speaker of the day was the respected Dr. S.B. Singh. Unlike many other speakers, he didn’t just come and speak. His approach was unique and engaging. He guided us on how to better understand ourselves by conducting a thoughtful exercise. He instructed us to take a page from our notebook, write down our name, the place where we completed our studies, our percentage in the 12th examination, our address, and pin code. Additionally, he asked us to note our weaknesses and strengths.
+Dr. Singh then gave us three minutes to envision a dream and write it on the page. After collecting all the pages, he helped us reflect on our hobbies, weaknesses, and strategies for overcoming challenges. This activity greatly enhanced our self-awareness and understanding of how to address our personal development.
+
+Second speaker was Dr. Pushpinder Singh. He is a remarkable individual hailing from a family with a strong medical background. He possesses extensive knowledge, which he generously shared with us. He emphasized the importance of identifying our skills and learning preferences, whether through writing, listening, or other methods. I learned alot from him.
+
+**Tenth Day (23 July 2023)**
+
+
+
+**Eleventh Day (24 July 2024)**
+
+Again another Day started with chanting mul mantra and gaytri mantra. Today's speaker was a young man Mr. Gauravdeep Singh. He is an outstanding individual who has received numerous national awards. He is the owner of "IOC (Initiators Of Change)" and comes from a modest background. He told us that how once he gave up on himself but then stood up again because he never looses his hope. He shared his life story that his mother struggled with depression, and his father ran a dhaba (roadside eatery).He shared his journey of success with us, highlighting his personal and academic challenges. During his early years, he enjoyed life and achieved excellent results in his 10th-grade exams, which allowed him to pursue the science stream. However, in 11th grade, he became less serious about his studies and failed his exams. His principal called his mother to school, and seeing her distress deeply affected him.Determined to make a difference for his mother and improve his situation, he reassessed his goals and chose the best path forward. He dedicated himself to his studies and ultimately achieved an impressive 96.8% in his exams, topping the district.He also shared his experiences with physical and financial challenges and provided insights on how to address and overcome these issues. His lecture left a significant impact on me, providing valuable knowledge and inspiration.
+
+Secondly, we interacted with Er.Lakhveer singh Coordinator CML.Lakhveer sir tell us about CML.He told us about the mission,vision and list of equipments.
+
+Last interaction of the day was the causmic club. We got to know about causmic club and were told about the opening of recuritmenrts. I found this club very interesting. Some of the seniors and batchmates also performed and showed their skills of singing and shayaris.
+
+**Twelveth Day (25 July 2024)**
+
+Today, our first lecture was a repeat of the one given by Mr. Arvind Dhingra on the second day of induction. While it was familiar to us, as we had seen the slides and games before, it was new for the other branches.
+
+The second lecture, held in the chemistry classroom with Professor Karan Bhalla, was very well-taught. He conducted a quick revision test on the previous lecture's material. We got to know about many new topics such as water hardness, salts dissolved in water, and the differences between temporary and permanent salts. He also assigned us some homework. After the lecture, we had an hour-long break.
+
+After the break, we had a math test of differentiation, integration, and differential equations. My test went well.
+
+**Last Day (26 July 2024)**
+
+It was the last day and the day began with interaction with Dr. Kanwalpreet Kaur Bhatt, a renowned homeopathic practitioner with 20 years of experience. As a meditation counselor, she inspired us all with her wisdom and to make us practice meditation, she held a practical session of meditation for 15 minutes.
+
+Further, Principal Dr. Sehijpal Singh engaged with students, emphasizing the importance of co-curricular activities. Director (NSET) S. Inderpal Singh also gave a motivating speech to first year students. First-year students showcased their incredible talents through various singing and dancing performances, creating unforgettable memories. The ceremony was a moment of pride as students were awarded prizes for their outstanding achievements in various competitions during the cultural orientation.
+
+_A big shoutout to the NCC team and Causmic Club for organising this programme with their dedication and hard work. All over the induction Program was inspiring and motivational._
+
+
+
 
 
 
