@@ -41,7 +41,7 @@ In the last lecture by our senior Panchan Jai Singh Gill Sir, he began by walkin
 
 **Fifth Day (16 July 2024)**
 
-Tod
+Today, we did something really interesting. We had an English literature quiz in teams of two. It was a lot of fun.
 
 **Sixth Day (17 July 2024)**
 
