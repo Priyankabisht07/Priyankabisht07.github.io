@@ -59,7 +59,11 @@ After a 45-minute break, we attended a lecture by Dr. Harwinder Singh, the Assoc
 
 **Eighth Day (19 July 2024)**
 
+Here's a reworded version:
 
+Today was amazing. We first interacted with Er. Kanwardeep Kalra, who was exceptionally confident and understanding. She shared a wealth of knowledge about the importance of soft skills and encouraged us to smile in every situation. 
+
+Next, we had a lecture with Jaswinder Singh, a renowned figure who has received the Shiksha Ratan award and invented the Lab on Wheels. His lecture was outstanding, as he imparted extensive knowledge about science and mathematics, emphasizing that mathematics is essential for balancing everything in the world. He also demonstrated how to count the bones in our body and showed us various physics experiments involving induction, mirrors, and lenses. Rohit, a CSE student from our class, partnered with Singh during the entire lecture.
 
 **Ninth Day (22 July 2024)**
 
