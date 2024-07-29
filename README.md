@@ -20,5 +20,12 @@ Today was our first day at college, and we needed to arrive at the gurdwara sahi
 
 The second day began with the chanting of the Mul Mantra and Gayatri Mantra. Following that, our speaker, Mr. Arvind Dhingra, Chairman of the Technical Activities Committee, arrived. He introduced us to various committees within the college, including SCIE (Student Chapter of the Institution of Engineering), ISTE (Indian Society for Technical Education), E2S2 (Electrical Engineering Staff and Students), SAE India, and BAJA. Mr. Dhingra also shared insights on the three P’s of success: _Passion, Persistence, and Patience_. Additionally, he organized games to engage both the girls and boys. 
 
+**Third Day (12 July 2024)**
+
+The third day was expected to be interesting as it involved interacting with our seniors. The first lecture covered Excel and ChatGPT. We learned the basics of Excel and how ChatGPT works. The lecture was very informative and peers shared insights about their first-year experiences including dos and don’ts. The second lecture focused on math, specifically the basics of calculus, including differentiation, integration, and trigonometry. Everyone found it easy since the topics were already familiar.
+
+**Forth Day (13 July 2024)**
+
+
 
 
