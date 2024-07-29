@@ -16,7 +16,9 @@ _Earlier, I know that Microsoft Excel is a spreadsheet program that's used to or
 
 Today was our first day at college, and we needed to arrive at the gurdwara sahib by 9 am. After the Ardas, we received parsad and proceeded to langar. The start of the day was very peaceful. Next, we headed to the auditorium to mark our attendance and find our seats. The induction program began with a warm welcome to all freshers by our principal and director. Additionally, alumni shared their experiences at GNE and their life journeys. We learned a lot about the college. Overall, the first day was as great as I had hoped.
 
-**Second Day (11 July 2024)
+**Second Day (11 July 2024)**
+
+The second day began with the chanting of the Mul Mantra and Gayatri Mantra. Following that, our speaker, Mr. Arvind Dhingra, Chairman of the Technical Activities Committee, arrived. He introduced us to various committees within the college, including SCIE (Student Chapter of the Institution of Engineering), ISTE (Indian Society for Technical Education), E2S2 (Electrical Engineering Staff and Students), SAE India, and BAJA. Mr. Dhingra also shared insights on the three P’s of success: _Passion, Persistence, and Patience_. Additionally, he organized games to engage both the girls and boys. 
 
 
 
