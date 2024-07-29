@@ -41,7 +41,7 @@ In the last lecture by our senior Panchan Jai Singh Gill Sir, he began by walkin
 
 **Fifth Day (16 July 2024)**
 
-
+Tod
 
 **Sixth Day (17 July 2024)**
 
@@ -74,7 +74,11 @@ Second speaker was Dr. Pushpinder Singh. He is a remarkable individual hailing f
 
 **Tenth Day (23 July 2023)**
 
+Today's lectures were held in classrooms. The first was a mathematics class with Professor Sukh Kaur Grewal, who covered partial fraction questions related to integration and differential equations.
 
+The second lecture was in chemistry with Professor Karan Bhalla. He reviewed 12th-grade topics, including the basics of organic chemistry and several inorganic concepts. He listed 15 important functional groups, discussed d block configuration, and covered osmosis and salts in water in physical chemistry. For homework, he assigned learning the molecular mass of the first 20 elements.
+
+Both lectures were very informative.
 
 **Eleventh Day (24 July 2024)**
 
