@@ -49,7 +49,9 @@ In the last lecture by our senior Panchan Jai Singh Gill Sir, he began by walkin
 
 **Seventh Day (18 July 2024)**
 
+Our new day began with the same topic we left off on the previous day in UHV. Professor Rishi reviewed the previous topics and then introduced new ones, covering the difference between self and body, the needs of self and body, gross misunderstanding, types of imagination, and the necessity of value education. He asked random questions, and we answered. I noticed that everyone had different opinions, which amazed me.
 
+In our second lecture, we interacted with our peers who gave us a brief description of the Canva app. We learned that Canva is a versatile tool used for editing, creating templates, posters, Instagram posts, presentations, PDFs, and more. We received a tutorial on how to make templates, and everyone created a template on their own.
 
 **Eighth Day (19 July 2024)**
 
