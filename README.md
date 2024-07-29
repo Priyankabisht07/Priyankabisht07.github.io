@@ -55,6 +55,8 @@ Our new day began with the same topic we left off on the previous day in UHV. Pr
 
 In our second lecture, we interacted with our peers who gave us a brief description of the Canva app. We learned that Canva is a versatile tool used for editing, creating templates, posters, Instagram posts, presentations, PDFs, and more. We received a tutorial on how to make templates, and everyone created a template on their own.
 
+After a 45-minute break, we attended a lecture by Dr. Harwinder Singh, the Associate NCC Officer (ANO). He explained the purpose of joining the NCC, the benefits, the process for joining, and the number of available vacancies. Following this, we had a lecture by Prof. Jasvir Singh Grewal, the Incharge of NSS. He detailed how to join the NSS, its benefits for students, the role of NSS members, and the responsibilities of NSS volunteers.
+
 **Eighth Day (19 July 2024)**
 
 
