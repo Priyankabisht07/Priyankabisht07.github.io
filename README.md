@@ -24,7 +24,10 @@ The second day began with the chanting of the Mul Mantra and Gayatri Mantra. Fol
 
 The third day was expected to be interesting as it involved interacting with our seniors. The first lecture covered Excel and ChatGPT. We learned the basics of Excel and how ChatGPT works. The lecture was very informative and peers shared insights about their first-year experiences including dos and don’ts. The second lecture focused on math, specifically the basics of calculus, including differentiation, integration, and trigonometry. Everyone found it easy since the topics were already familiar.
 
-**Forth Day (13 July 2024)**
+**Forth Day (15 July 2024)**
+
+Today was auditorium day starting with the chanting of the Mul Mantra. Randhir Sir then guided us on creating and using a GitHub profile. Mr. Pyare Lal Garg was the main speaker. His confidence and storytelling were impressive. He shared his life stories, experiences, and remarkable poetry, which everyone enjoyed. The lecture was very inspiring.
+Next 
 
 
 
