@@ -37,6 +37,9 @@ The next lecture was given by the youthful speaker Mr. Sony Garg. He began with 
 
 The lecture was memorable and left a strong impression on me and I found him to be a great personality.
 
+In the last lecture by our senior Panchan Jai Singh Gill Sir, he began by walking in from the back of the auditorium. He provided us with valuable insights on how to read a person's body language, including how to distinguish between a genuine smile and a fake one.
+
+**Fifth Day (16 July 2024)**
 
 
 
