@@ -45,7 +45,9 @@ In the last lecture by our senior Panchan Jai Singh Gill Sir, he began by walkin
 
 **Sixth Day (17 July 2024)**
 
+Today started with a math lecture by Professor S Mehra. He began by reviewing the basic identities of integration and types of integration, including substitution and completing the square, all other topics which we've studied in the 12th class. He demonstrated several problems to refresh our memory and then gave us some questions to solve. The questions were easy since the topic is already familiar.
 
+The second lecture was on Universal Human Values (UHV), a completely new subject for me. Professor Rishi Kapoor's teaching style is very interesting. He covers topics such as human values and ethics, aspirations and how to fulfill them, natural acceptance and acceptance, harmony in society and self, and the importance of understanding in relationships. He engaged us by asking questions, and we answered by raising our hands.
 
 **Seventh Day (18 July 2024)**
 
